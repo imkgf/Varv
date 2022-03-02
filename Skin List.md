@@ -10,3 +10,6 @@
 
 # [  《CK》 Bacon boi 1.0  『old』 ](https://mega.nz/file/zP5WnQwb#YHdIHV2fZuDpaH2eaPBfSf1m5iKHpnT19VfRr40BqbM)
 ![](https://i.imgur.com/IRHXwGK.png)
+
+# [ owoTuna {1.4} 『Selyu+Shige』 ](https://mega.nz/file/bLwGTS4D#XsWcFcXwTi4OxVl5fnCATa6qzSopfeI66Mr2GUZ0K0c)
+![](https://i.imgur.com/9On2CDR.png)
