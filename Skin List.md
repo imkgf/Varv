@@ -8,7 +8,7 @@
 # [ Vaxei 2017-11-21 HD v1.2 ](https://mega.nz/file/QvAjRYJQ#Q7o4YAqE7zVhFLXazNEP73pUiC-M30GTria73HggaqU)
 ![](https://i.imgur.com/3YTE0s4.png)
 
-# [《CK》 Bacon boi 1.0 『old』 - lite](https://mega.nz/file/ufxiUAwY#v7ZHjwQayGmsq0Yg7_Dhx9sCJwVKwWFL_ifKZmQbM-w)
+# [《CK》 Bacon boi 1.0 『blue』](https://mega.nz/file/jXpniCZD#mv6NjV1NT-VZvF84efqRgjDs_hRrQYUA-IG-2PpdG20)
 ![](https://i.imgur.com/IRHXwGK.png)
 
 # [ owoTuna {1.4} 『Selyu+Shige』 ](https://mega.nz/file/bLwGTS4D#XsWcFcXwTi4OxVl5fnCATa6qzSopfeI66Mr2GUZ0K0c)
