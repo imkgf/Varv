@@ -2,8 +2,11 @@
 
 # If there are any issues regarding the skins, contact @kgf.#4177 on Discord.
 
-# [ Varvalian (Aristia Edit) ](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0) /// [ Trail Mix Cursor Version ](https://mega.nz/file/bb5FlALC#mZYueZnR1Q2670zVN0bfzS3E0Cn4_joQ7aHG4nnPhyw)
+# [ Varvalian (Aristia Edit) ](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
 ![](https://osu.ppy.sh/ss/17599721/4526)
+
+# [ # #Aristia# - - Trail Mix](https://mega.nz/file/bb5FlALC#mZYueZnR1Q2670zVN0bfzS3E0Cn4_joQ7aHG4nnPhyw)
+![](https://osu.ppy.sh/ss/17737798/2226)
 
 # [ Vaxei 2017-11-21 HD v1.2 ](https://mega.nz/file/QvAjRYJQ#Q7o4YAqE7zVhFLXazNEP73pUiC-M30GTria73HggaqU)
 ![](https://i.imgur.com/3YTE0s4.png)
