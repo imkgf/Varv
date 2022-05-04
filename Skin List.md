@@ -5,7 +5,7 @@
 # [ Varvalian (Aristia Edit) ](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
 ![](https://osu.ppy.sh/ss/17599721/4526)
 
-# [ # #Aristia# - - Trail Mix](https://mega.nz/file/SeZA2SqS#ttnDGGKK5q-gIDFKfY5NOnS94yMC5Wdx24WWReD9Kl0)
+# [- # #Aristia# - - #Trail Mix#](https://mega.nz/file/SeZA2SqS#ttnDGGKK5q-gIDFKfY5NOnS94yMC5Wdx24WWReD9Kl0)
 ![](https://osu.ppy.sh/ss/17737798/2226)
 
 # [ Vaxei 2017-11-21 HD v1.2 ](https://mega.nz/file/QvAjRYJQ#Q7o4YAqE7zVhFLXazNEP73pUiC-M30GTria73HggaqU)
