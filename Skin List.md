@@ -1,6 +1,6 @@
 # Varvalian's osu! skins
 
-# If there are any issues regarding the skins, contact kgf.#4177 on Discord.
+# If there are any issues regarding the skins, contact kgf. on Discord.
 
 # [ Varvalian (Aristia Edit) ](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
 ![](https://osu.ppy.sh/ss/17599721/4526)
