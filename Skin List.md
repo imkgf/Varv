@@ -6,7 +6,7 @@
 ![](https://osu.ppy.sh/ss/17599721/4526)
 
 # [ varv_xcs ](https://mega.nz/file/fOZVRCYQ#vzhbJMsD3Xoa4LXmyFcq1HG48Z9qC6accEyDI1DLCkw)
-![](https://osu.ppy.sh/ss/18909776/e732)
+![](https://osu.ppy.sh/ss/18909790/e158)
 
 # [- # #Aristia# - - #Trail Mix#](https://mega.nz/file/SeZA2SqS#ttnDGGKK5q-gIDFKfY5NOnS94yMC5Wdx24WWReD9Kl0)
 ![](https://osu.ppy.sh/ss/17737798/2226)
